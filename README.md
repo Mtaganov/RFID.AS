@@ -18,7 +18,7 @@ Controlling unit is in the institute. Whenever the card is placed near the reade
 1. Douglas Perez
 2. Andi Alla
 3. Bakh Kamalov
-4. Maksat Taganov
+ov
 
 
 
